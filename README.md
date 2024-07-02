@@ -1,6 +1,6 @@
 # Hello people of the universe! ✨
 
-🌱 I’m currently learning in Kood/Jõhvi, planning to specialize in game development.
+🌱 I’m currently learning in Kood/Jõhvi, specializing in game development.
 
 Graphic desgin is my passion.
 
